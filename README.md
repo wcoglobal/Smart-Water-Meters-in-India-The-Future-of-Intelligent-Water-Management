@@ -1,0 +1,2 @@
+# Smart-Water-Meters-in-India-The-Future-of-Intelligent-Water-Management
+Water is one of the most valuable natural resources, yet managing it efficiently remains a major challenge across residential, commercial, and municipal sectors. With increasing urbanization and the growing demand for sustainable infrastructure, smart water meters in India are becoming solution for accurate monitoring and efficient water usage.
